@@ -2,7 +2,7 @@
 
 Andouille is more authentic, but kielbasa or pretty much any other smoked sausage works great. 
 
-Use a large pot with a lid, like a Lodge 7.5 quart enameled cast iron dutch oven.
+Use a large pot with a lid, like a Lodge 6.5 quart enameled cast iron dutch oven.
 
 I like to take my roux *just* to the brink of burnt. I keep the Trinity (onions, celery, bell pepper) in a mixing bowl close at hand, stirring and stirring the roux until it starts to smell *toasty*, but not burnt, and looks like the color of dark chocolate. Right at the moment when it smells done, dump in the Trinity to stop the roux from burning.
 
